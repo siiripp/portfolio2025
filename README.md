@@ -1,0 +1,2 @@
+# kesatyo2024portfolio
+Näytteitä teknisestä osaamisestani kesätyönhakua varten
